@@ -1,2 +1,2 @@
-# Idk
+# Logitalk
 blablablablablablablablablablablablablablablablablablablablablablablablablablablablablablablabla
